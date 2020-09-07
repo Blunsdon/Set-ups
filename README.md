@@ -1,2 +1,10 @@
-# linux_set_up
-My set up for linux
+# Set-upS
+
+
+
+Free for all
+
+My set ups for OS
+
+
+
